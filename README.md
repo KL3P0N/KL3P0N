@@ -11,4 +11,4 @@
 
 <div align="center">
 
-<a href="https://docs.google.com/document/d/1NDxl2TZ1kUJxR9gjpO5k53gePdjNtmClKCfSPnu2b38/edit?usp=sharing" target="_blank">#JUSTICEFORARUU
+<a href="https://docs.google.com/document/d/e/2PACX-1vRy0dVdxmmk1TJCoXLmPaTLwK_UZ2UjKNrjas9JuAv90WJHc8wh1evqrCq16fuQyBL8UzN3_nB1fkQd/pub" target="_blank">#JUSTICEFORARUU
