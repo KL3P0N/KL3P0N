@@ -9,6 +9,3 @@
   I dont usually put c*h on my ponies, but feel free to do so!!
 </p>
 
-<div align="center">
-
-<a href="https://docs.google.com/document/d/e/2PACX-1vRy0dVdxmmk1TJCoXLmPaTLwK_UZ2UjKNrjas9JuAv90WJHc8wh1evqrCq16fuQyBL8UzN3_nB1fkQd/pub" target="_blank">#JUSTICEFORARUU
